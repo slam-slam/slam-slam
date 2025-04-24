@@ -8,7 +8,7 @@
 ## 🌍 What I Do
 
 🔎 **Connecting with top-tier quant platforms** across the globe:  
-New York · London · Singapore · Hong Kong · Shanghai...
+New York · London · Singapore · Hong Kong ·Beijing · Shanghai...
 
 💼 **Hiring for roles such as:**
 - **Portfolio Managers (PMs)** | 量化投资经理  
